@@ -1,1 +1,1 @@
-# Josiahwilliams
+Hi I am Josiah Williams. I am a software developer from Nigeria.
